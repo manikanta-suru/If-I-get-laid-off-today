@@ -1,32 +1,58 @@
-If I get laid off today, this is the plan I will follow to get a job in the next 90 days!
 
-First 30 Days👇🏻
+---
 
-[1] Create 2 resumes: 
-#Resume1 with all the generic keywords, and skills required in my job based on top 10 companies.
-#Resume2 Complete resume with spaces for customized skills and experience per Job Description.
-[2] Update your LinkedIn profile and repeat your Target job title and 2 top skills in Headline, about, and Experience. 
-[3] Upload your resume to at least 5 Job portals like Naukri, iimjobs, etc. 
-[4] Test my resume by applying to at least 100 jobs each week. 
-[5] Begin networking: Reach out to old colleagues, friends, and acquaintances to let them know you're job hunting.
+**30-Day Job Hunting Plan**
 
-[In 4th week - Write down the number of calls you got through applying, Networking, and targeting]
+**Day 0:**
 
+1. **Create Two Resumes:**
+   - **Resume 1:** Incorporate generic keywords and skills based on the requirements of top companies.
+   - **Resume 2:** Tailor your resume with spaces for customized skills and experiences according to specific job descriptions.
+   
+2. **Update LinkedIn Profile:**
+   - Ensure your LinkedIn headline, about section, and experience highlight your target job title and two key skills.
+   
+3. **Upload Resumes:**
+   - Upload your resumes to at least five job portals such as Naukri, iimjobs, etc.
+   
+4. **Resume Testing:**
+   - Apply to at least 100 jobs per week and evaluate responses.
+   
+5. **Begin Networking:**
+   - Reach out to old colleagues, friends, and acquaintances to inform them of your job search.
 
-Next 30 Days 👇🏻
+**Next 30 Days:**
 
-[1] Refine the job search process: Learn from any rejections, make necessary adjustments to your job search strategy, and Double down on the process that produced most interview calls.
-[2] Continue networking and applying for jobs: Be persistent and proactive in your job search efforts.
-[3] Follow up on all applications: Reach out to companies applied to, and inquire about the application status with my network and referrals as well.
-[4] Attending LinkedIn career events: Almost all creators have an audio event on LinkedIn, join the one relevant to me, and connect with other people who joined and have similar interests and skills. 
-[5] Spend 2-3 hours each day refining your Interview skills and questions.
+1. **Refine Job Search Process:**
+   - Learn from rejections and adjust your strategy accordingly.
+   
+2. **Continue Networking and Applying:**
+   - Stay persistent and proactive in your job search efforts.
+   
+3. **Follow-Up on Applications:**
+   - Inquire about application status and leverage your network for referrals.
+   
+4. **Attend LinkedIn Career Events:**
+   - Join relevant audio events and connect with like-minded professionals.
+   
+5. **Interview Preparation:**
+   - Dedicate 2-3 hours daily to refine your interview skills and questions.
 
-[By Now, You should have Interviews lined up, if not you should focus more on informational interviews]
+**Final 30 Days:**
 
+1. **Reevaluate and Update:**
+   - Update your resume and LinkedIn profile based on feedback and interview experiences.
+   
+2. **Refine Job Search Approach:**
+   - Keep track of applications, networking contacts, and interviews for effective follow-up.
+   
+3. **Salary Research:**
+   - Conduct in-depth research to understand the value of your skills and experiences.
+   
+4. **Prepare for Interviews:**
+   - Practice interview questions tailored to specific companies.
 
-The last 30 Days 👇🏻
+**Challenges Ahead:**
 
-[1] Again Reevaluate and Update my Resume and LinkedIn Profile Based on all the Rejection and Interviews.
-[2] Refine the job search approach and Keep track of the applications, networking contacts, and Interviews for follow-up
-[3] Deep dive into Salary research and Identifying the worth of my skills and experience. 
-[5] Prepare for interviews: Practice interview questions for the companies I’ll be interviewing with.
+Each stage of the job hunting process presents its own set of challenges. However, refining your job search strategy based on feedback and staying persistent in networking and application efforts might prove to be the most demanding tasks. Additionally, maintaining motivation and resilience throughout the process can be challenging, but remember, each rejection is an opportunity for growth and improvement.
+
